@@ -1,1 +1,1 @@
-# CognoRise infotech
+# CognoRise Infotech
